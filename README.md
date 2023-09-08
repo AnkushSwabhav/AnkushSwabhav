@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **anything related to tech**
 
-- 📫 How to reach me **sondalankush.work@gmail.com**
+- 📫 How to reach me **ankush@swabhavtechlabs.com** 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
